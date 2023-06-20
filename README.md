@@ -1,1 +1,0 @@
-# piscin_kh
